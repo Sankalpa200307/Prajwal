@@ -1,1 +1,1 @@
-<h1>EduAithon by Soma and PrajwalDas</h1>
+<h1>EduAIthon 16 to 18th may 2025</h1>
